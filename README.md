@@ -1,1 +1,1 @@
-# What-Does-the-Nest-Blinking-Green-Light-Mean-
+Have you noticed a blinking green light on your Nest thermostat? Don't worry; it's normal! But what exactly does it mean? Let's break it down in simple terms. For more detailed guides on smart home devices, check out Home Tech Nerves—your go-to resource.  https://hometechnerves.com/what-does-nest-blinking-green-light-mean/
